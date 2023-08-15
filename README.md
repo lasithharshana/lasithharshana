@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lasithharshana
 - 👀 I’m interested in Learn new things
-- 🌱 I’m currently studyng Horizon Campus 
+- 🌱 I’m Graduated from Horizon Campus 
 - 📫 How to reach me npglasith@gmail.com
 
 <!---
